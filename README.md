@@ -5,6 +5,6 @@
 
 ➤ 🇪🇸 DEMOSTRACIÓN: https://imgur.com/a/XIRoFj 
 
-➤ 🏴 Thanks to [Shing]()
+➤ 🏴 Thanks to [Shing](https://github.com/ShingSemicolon)
 
-➤ 🇪🇸 Gracias a [Shing]()
+➤ 🇪🇸 Gracias a [Shing](https://github.com/ShingSemicolon)
