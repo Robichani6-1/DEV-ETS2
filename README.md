@@ -3,7 +3,7 @@
 
 ➤ 🏴 DEMOSTRATION: https://imgur.com/a/Jy3S1yI
 
-➤ 🇪🇸 DEMOSTRACIÓN: https://imgur.com/a/XIRoFjU🏴 
+➤ 🇪🇸 DEMOSTRACIÓN: https://imgur.com/a/XIRoFj 
 
 ➤ 🏴 Thanks to [Shing]()
 
