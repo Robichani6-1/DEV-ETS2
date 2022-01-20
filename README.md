@@ -3,3 +3,6 @@
 
 🏴 DEMOSTRATION: https://imgur.com/a/Jy3S1yI
 🇪🇸 DEMOSTRACIÓN: https://imgur.com/a/XIRoFjU
+
+🏴 Thanks to [Shing]()
+🇪🇸 Gracias a [Shing]()
